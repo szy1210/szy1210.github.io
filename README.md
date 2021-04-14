@@ -1,1 +1,1 @@
-# szyBlog.github.io
+# szy1210.github.io
