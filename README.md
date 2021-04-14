@@ -1,0 +1,1 @@
+# szyBlog.github.io
